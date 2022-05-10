@@ -5,7 +5,7 @@ List is curated according to their respective platforms
 
 - [Figuring It Out](https://soundcloud.com/user-155287821)
 - [Twape's pocast](https://soundcloud.com/user-311733843)
-- [Feministing while Malawian](https://soundcloud.com/feministing)
+- [Feministing while Malawian](https://anchor.fm/feministingwhilemalawian)
 - [LIST'EM PodcastPro Unlimited](https://soundcloud.com/zalusoarts)
 - [Kalibu ConversationsPro Unlimited](https://soundcloud.com/kalibu-conversations)
 - [YouKnowNicoleSaid Podcast](https://soundcloud.com/youknownicolesaid)
